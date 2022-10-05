@@ -1,1 +1,1 @@
-# www.mudassirniaz.github.io
+# mudassirniaz.github.io
